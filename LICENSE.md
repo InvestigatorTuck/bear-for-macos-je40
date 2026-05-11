@@ -1,4 +1,4 @@
-
+Get the ultimate Bear for macOS macro with Bear for macOS smart Macro: goal tracking & version history. Featuring goal tracking and version history, it's the best choice for macOS
 
 
 
